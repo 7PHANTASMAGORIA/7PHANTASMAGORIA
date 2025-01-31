@@ -19,7 +19,7 @@ I speak both `english` and `spanish`
 
 I like playing games, specially `rpgmaker` and `visual novels` ^_^!!
 
-You are free to cuddle with me, I like making friends :3 If im offtab please whisper me!!  
+Feel free to cuddle with me, I like making friends :3 If im offtab please whisper me!!  
 
 
 </div>
