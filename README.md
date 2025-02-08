@@ -2,12 +2,12 @@
 
 </h3> 
   
-  ***Welcome to the show!***
+
 
   
 <div align="center">
   
-  ![](https://github.com/7PHANTASMAGORIA/7PHANTASMAGORIA/blob/main/31_sin_titulo_20250131011025.jpg)
+
 
 
  </h3>
