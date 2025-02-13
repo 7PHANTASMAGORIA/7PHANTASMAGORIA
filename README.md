@@ -25,4 +25,4 @@ Feel free to cuddle with me, I like making friends :3 If im offtab please whispe
 </div>
 
 
- https://github.com/7PHANTASMAGORIA/7PHANTASMAGORIA/blob/main/72af29f3a77c71cb9928eba49e875ecc.jpg
+https://github.com/7PHANTASMAGORIA/7PHANTASMAGORIA/blob/main/72af29f3a77c71cb9928eba49e875ecc.jpg?raw=true
